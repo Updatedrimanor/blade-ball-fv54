@@ -1,4 +1,4 @@
-#  
+#  Experience blade ball like never before with blade ball Script exclusive, the #1 Script. Includes auto-farm and auto-collect for unbeatable
 
 
 
